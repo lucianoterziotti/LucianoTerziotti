@@ -1,5 +1,5 @@
 ### Buenas buenas! 👋
-Mi nombre es Luciano Terziotti, me dicen lupo 🐺, y soy desarrollador. 
+Mi nombre es Luciano Terziotti, y para los que me conocen soy simplemente lupo 🐺 
 Intentando describirme, me di cuenta que odio autopresentarme asi que ire directamente al grano y te contaré directamente sobre lo que estoy haciendo. 
 
 ## A que le dedico el 80% de mi día 
