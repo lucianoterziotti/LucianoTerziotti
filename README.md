@@ -1,7 +1,7 @@
 ### Buenas buenas! 👋
 Mi nombre es Luciano Terziotti, y para los que me conocen soy simplemente lupo 🐺 
 
-Intentando describirme, me di cuenta que odio autopresentarme asi que ire directamente al grano y te contaré directamente lo que ando haciendo. 
+Intentando describirme, me di cuenta que odio autopresentarme asi que ire directamente al grano y te contaré directamente en que ando. 
 
 ## A que le dedico el 80% de mi día 
 
